@@ -24,4 +24,4 @@ caracteres em estilo digital (ex.: segmentos iluminados que formem o número).
 • Alternativamente, é permitido utilizar um estilo criativo, desde que o número seja claramente
 identificável.
 
-Vídeo demonstrativo:
+Vídeo demonstrativo: https://www.dropbox.com/scl/fi/9bwufzsu1sfh9ubkjqor4/whatsapp-video-2025-02-02-at-123347_mh0qtHSp.mp4?rlkey=1b3zff8uke9fhc1oifwifm7co&st=zrg5coeh&dl=0
